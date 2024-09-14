@@ -1,7 +1,7 @@
 # StarVox's GitHub Profile
 
 Online, I'm a YouTuber and Content Creator.  
-Offline, I work in advertising design and campaign management.  
+Offline, I work in advertising design and campaign administration.  
 As a content creator, I make YouTube videos for SPT, the single-player mod system for Escape from Tarkov.  
 
 ## Links to my content
