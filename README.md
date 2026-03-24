@@ -2,7 +2,7 @@
 
 Online, I'm a YouTuber and Content Creator.  
 Offline, I work in advertising design and campaign administration.  
-As a content creator, I make YouTube videos for SPT, the single-player mod system for Escape from Tarkov.  
+As a content creator, I make YouTube videos about video games.  
 
 ## Links to my content
 [My Website](https://starvoxc2.us)  
